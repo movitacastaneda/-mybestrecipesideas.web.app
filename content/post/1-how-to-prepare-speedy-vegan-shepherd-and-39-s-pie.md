@@ -2,13 +2,13 @@
 description: "How to Prepare Speedy Vegan Shepherd&amp;#39;s Pie"
 title: "How to Prepare Speedy Vegan Shepherd&amp;#39;s Pie"
 slug: 1-how-to-prepare-speedy-vegan-shepherd-and-39-s-pie
-date: 2020-06-14T09:27:04.287Z
+date: 2020-04-15T09:01:53.873Z
 image: https://img-global.cpcdn.com/recipes/18dbebda4d7caca2/751x532cq70/vegan-shepherds-pie-recipe-main-photo.jpg
 thumbnail: https://img-global.cpcdn.com/recipes/18dbebda4d7caca2/751x532cq70/vegan-shepherds-pie-recipe-main-photo.jpg
 cover: https://img-global.cpcdn.com/recipes/18dbebda4d7caca2/751x532cq70/vegan-shepherds-pie-recipe-main-photo.jpg
-author: Tony Barton
-ratingvalue: 4.1
-reviewcount: 4
+author: Kate Fields
+ratingvalue: 3.2
+reviewcount: 11
 recipeingredient:
 - "500 g rinsed 12hsoaked greenbrown lentils"
 - "1500 g water"
@@ -58,47 +58,47 @@ tags:
 - pie
 
 katakunci: vegan shepherds pie 
-nutrition: 219 calories
+nutrition: 134 calories
 recipecuisine: American
-preptime: "PT24M"
-cooktime: "PT55M"
-recipeyield: "1"
-recipecategory: Lunch
+preptime: "PT19M"
+cooktime: "PT45M"
+recipeyield: "4"
+recipecategory: Dinner
 
 ---
 
 
 ![Vegan Shepherd&#39;s Pie](https://img-global.cpcdn.com/recipes/18dbebda4d7caca2/751x532cq70/vegan-shepherds-pie-recipe-main-photo.jpg)
 
-Hello everybody, I hope you are having an amazing day today. Today, I will show you a way to make a distinctive dish, vegan shepherd&#39;s pie. It is one of my favorites food recipes. For mine, I will make it a bit tasty. This will be really delicious.
+Hey everyone, hope you're having an amazing day today. Today, I will show you a way to prepare a distinctive dish, vegan shepherd&#39;s pie. It is one of my favorites food recipes. For mine, I am going to make it a little bit tasty. This will be really delicious.
+
+Vegan Shepherd&#39;s Pie is one of the most favored of current trending meals in the world. It's easy, it is fast, it tastes yummy. It is enjoyed by millions daily. They're nice and they look wonderful. Vegan Shepherd&#39;s Pie is something that I have loved my entire life.
 
 Topped with creamy, fluffy mashed potatoes. The perfect hearty entree for colder weather. The Best Vegan Shepherd&#39;s Pie features protein rich lentils with a medley of vegetables in a rich gravy, topped with classic mashed potatoes and baked to perfection for a rustic, comfort food everyone will.
 
-Vegan Shepherd&#39;s Pie is one of the most popular of recent trending meals on earth. It's enjoyed by millions every day. It is simple, it's quick, it tastes delicious. Vegan Shepherd&#39;s Pie is something which I've loved my whole life. They are fine and they look fantastic.
 
-
-To get started with this recipe, we must first prepare a few components. You can cook vegan shepherd&#39;s pie using 16 ingredients and 23 steps. Here is how you can achieve that.
+To get started with this particular recipe, we have to prepare a few components. You can have vegan shepherd&#39;s pie using 16 ingredients and 23 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
 ##### The ingredients needed to make Vegan Shepherd&#39;s Pie:
 
-1. Get 500 g rinsed, 12h-soaked green&amp;brown lentils*
-1. Prepare 1500 g water
+1. Make ready 500 g rinsed, 12h-soaked green&amp;brown lentils*
+1. Make ready 1500 g water
 1. Get to taste salt &amp; pepper
 1. Prepare 1 large white onion ca.175g
-1. Get 4-6 garlic cloves ca.20g
-1. Get 3-4 carrots ca.200g
+1. Make ready 4-6 garlic cloves ca.20g
+1. Prepare 3-4 carrots ca.200g
 1. Get  Olive oil (or vegan butter)
-1. Prepare 4 sprigs fresh thyme or 1½tsp dryied thyme
-1. Prepare 2420 g diced potatoes (came from a packet of 3kg)
-1. Prepare  salted water (e.g. 2tbsp of smoked salt)
-1. Make ready 260 g cashews
-1. Prepare 340 g water (e.g. reuse potato water)
+1. Take 4 sprigs fresh thyme or 1½tsp dryied thyme
+1. Make ready 2420 g diced potatoes (came from a packet of 3kg)
+1. Get  salted water (e.g. 2tbsp of smoked salt)
+1. Prepare 260 g cashews
+1. Take 340 g water (e.g. reuse potato water)
 1. Get  herb salt
-1. Get  ground pepper
-1. Get  ground nutmeg
-1. Take  or the equivalent in jarred precooked lentils
+1. Prepare  ground pepper
+1. Take  ground nutmeg
+1. Make ready  or the equivalent in jarred precooked lentils
 
 
 Vegetarian Shepherd&#39;s Pie with mushrooms, carrots, peas, gravy and baked under creamy mashed potatoes. ♡ Plant based! Easily made vegan or gluten free. This vegan shepherd&#39;s pie is what (dinner) dreams are made of! Jaye was the one who conceived of it (he&#39;s great with the savory stuff!) and he wanted to experiment with chopping up mushrooms super. 
@@ -134,4 +134,4 @@ Vegetarian Shepherd&#39;s Pie with mushrooms, carrots, peas, gravy and baked und
 
 This easy Vegan Shepherd&#39;s Pie Recipe creates a savory, saucy casserole dish, topped with a generous serving of mashed potatoes. Vegan Shepherds Pie is perfect for meal prepping because it. A rich, vegan lentil stew topped with homemade mashed potatoes. This naturally vegan lentil shepherd&#39;s pie is made by baking stewed lentils and vegetables with a garlic chive mashed potato topping. My meatless shepherd&#39;s pie recipe is flavorfully made with normal. 
 
-So that's going to wrap it up for this exceptional food vegan shepherd&#39;s pie recipe. Thanks so much for your time. I'm confident you can make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that's going to wrap it up with this exceptional food vegan shepherd&#39;s pie recipe. Thank you very much for reading. I am confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

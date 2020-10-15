@@ -1,0 +1,77 @@
+---
+description: "How to Prepare Award-winning SUPERFOOD Smoothie (sea moss, frozen soursop) Vegan"
+title: "How to Prepare Award-winning SUPERFOOD Smoothie (sea moss, frozen soursop) Vegan"
+slug: 440-how-to-prepare-award-winning-superfood-smoothie-sea-moss-frozen-soursop-vegan
+date: 2020-05-14T12:36:28.777Z
+image: https://img-global.cpcdn.com/recipes/ff6b16cea6759c60/751x532cq70/superfood-smoothie-sea-moss-frozen-soursop-vegan-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/ff6b16cea6759c60/751x532cq70/superfood-smoothie-sea-moss-frozen-soursop-vegan-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/ff6b16cea6759c60/751x532cq70/superfood-smoothie-sea-moss-frozen-soursop-vegan-recipe-main-photo.jpg
+author: Carlos Warren
+ratingvalue: 5
+reviewcount: 8
+recipeingredient:
+- "4 oz sea moss gel"
+- "1 cup or more frozen soursop pulp"
+- "1.5 cup spring water"
+- "2 tsp minced ginger"
+- "1/2 tsp ground cinnamon"
+- "1 tsp fresh lemon juice"
+- "2.5 tbsp or more agave or honey"
+recipeinstructions:
+- "Using a blender or bullet, Add all ingredients plus 1 cup of the water. Blend to combine or add the rest of the water until smooth"
+- "For extra smooth texture. Run through fine mesh strainer to remove pulp remains"
+categories:
+- Recipe
+tags:
+- superfood
+- smoothie
+- sea
+
+katakunci: superfood smoothie sea 
+nutrition: 286 calories
+recipecuisine: American
+preptime: "PT20M"
+cooktime: "PT43M"
+recipeyield: "3"
+recipecategory: Dinner
+
+---
+
+
+![SUPERFOOD Smoothie (sea moss, frozen soursop) Vegan](https://img-global.cpcdn.com/recipes/ff6b16cea6759c60/751x532cq70/superfood-smoothie-sea-moss-frozen-soursop-vegan-recipe-main-photo.jpg)
+
+Hello everybody, I hope you are having an amazing day today. Today, I will show you a way to prepare a special dish, superfood smoothie (sea moss, frozen soursop) vegan. One of my favorites. This time, I'm gonna make it a bit tasty. This is gonna smell and look delicious.
+
+SUPERFOOD Smoothie (sea moss, frozen soursop) Vegan is one of the most well liked of recent trending foods in the world. It is simple, it's quick, it tastes delicious. It is enjoyed by millions every day. SUPERFOOD Smoothie (sea moss, frozen soursop) Vegan is something which I've loved my entire life. They're nice and they look fantastic.
+
+Is Sea Moss a Legit New Superfood? Sea moss, a type of algae, might be the answer to better skin and Like many trendy so-called &#34;superfoods,&#34; sea moss has a celeb-studded backing, including none When made into a gelatin-like consistency and added to foods like your morning smoothie. Viberzone Superfood Smoothie rejuvenate the body, prevent against inflammation, and help keep your skin healthy and radiant.
+
+
+To begin with this recipe, we have to prepare a few ingredients. You can have superfood smoothie (sea moss, frozen soursop) vegan using 7 ingredients and 2 steps. Here is how you can achieve it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make SUPERFOOD Smoothie (sea moss, frozen soursop) Vegan:
+
+1. Take 4 oz sea moss gel
+1. Make ready 1 cup (or more) frozen soursop pulp
+1. Make ready 1.5 cup spring water
+1. Take 2 tsp minced ginger
+1. Get 1/2 tsp ground cinnamon
+1. Make ready 1 tsp fresh lemon juice
+1. Prepare 2.5 tbsp (or more) agave or honey
+
+
+Sea moss, also known as Irish Sea Moss, is an incredible superfood with a wide range of health benefits! If done right, making Sea Moss Gel is easy and can be used in many ways, from in your smoothies to as a face mask! I&#39;ll show you how to make it step-by-step so that you can begin to enjoy. Not all sea moss is the same. 
+
+<!--inarticleads2-->
+
+##### Steps to make SUPERFOOD Smoothie (sea moss, frozen soursop) Vegan:
+
+1. Using a blender or bullet, Add all ingredients plus 1 cup of the water. Blend to combine or add the rest of the water until smooth
+1. For extra smooth texture. Run through fine mesh strainer to remove pulp remains
+
+
+Mass produced farm raised trash wont work, so make sure you are buying the real deal. Here are three suppliers with quality product. Sea moss is an excellent source of minerals the body needs to thrive. Sea moss gel is a seaweed packed with essential minerals. It&#39;s simple to make and easy to add to your vegan meals! 
+
+So that is going to wrap this up for this special food superfood smoothie (sea moss, frozen soursop) vegan recipe. Thanks so much for reading. I'm sure you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
