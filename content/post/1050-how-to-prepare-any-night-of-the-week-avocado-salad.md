@@ -1,0 +1,100 @@
+---
+description: "How to Prepare Any-night-of-the-week Avocado Salad"
+title: "How to Prepare Any-night-of-the-week Avocado Salad"
+slug: 1050-how-to-prepare-any-night-of-the-week-avocado-salad
+date: 2020-08-26T10:13:04.347Z
+image: https://img-global.cpcdn.com/recipes/9455ef17f0164b27/751x532cq70/avocado-salad-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/9455ef17f0164b27/751x532cq70/avocado-salad-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/9455ef17f0164b27/751x532cq70/avocado-salad-recipe-main-photo.jpg
+author: Dennis Hudson
+ratingvalue: 4.1
+reviewcount: 7
+recipeingredient:
+- " Cabbage"
+- " Lettuce"
+- " Tomatoes"
+- " Avocados n beetroot"
+- " Onions"
+- " Boiled Egg"
+- " Lemon"
+- "1 cube seasoning"
+- "Pinch saltoptional"
+- " For garnishing"
+- " Salad cream or mayonnaise"
+- " Black pepper powder"
+- " Olive oil lemon juice"
+recipeinstructions:
+- "Wash all veggies thoroughly and set aside."
+- "Cut ur lettuce n cabbage separately."
+- "Dice you Avocado,tomato n beetroot."
+- "Slice ur cucumber, boiled egg, onion n lemon."
+- "Dressed ur veggies n egg in a salad bowl or tray."
+- "For d garnishing if u are using mayonnaise or salad cream put 2table spoon of warm water in a bowl, add ur powdered seasoning n black pepper, add mayonnaise or salad cream n mixed then garnish ur salad with d mixture."
+- "If u are not using mayonnaise squeeze lemon juice in a bowl add olive oil, ur seasoning powder n black pepper n garnish ur salad with this mixture."
+- "Salad can be serve alone or with other dishes, like white rice, fried rice etc."
+categories:
+- Recipe
+tags:
+- avocado
+- salad
+
+katakunci: avocado salad 
+nutrition: 155 calories
+recipecuisine: American
+preptime: "PT39M"
+cooktime: "PT57M"
+recipeyield: "2"
+recipecategory: Dinner
+
+---
+
+
+![Avocado Salad](https://img-global.cpcdn.com/recipes/9455ef17f0164b27/751x532cq70/avocado-salad-recipe-main-photo.jpg)
+
+Hello everybody, hope you are having an amazing day today. Today, I'm gonna show you how to prepare a distinctive dish, avocado salad. It is one of my favorites. For mine, I will make it a bit unique. This will be really delicious.
+
+Fill Your Cart With Color Today! A fast and easy gluten-free salad that will please everybody. I made up this recipe using whatever I had on hand and it turned out great.
+
+Avocado Salad is one of the most favored of recent trending meals in the world. It is enjoyed by millions daily. It is easy, it is fast, it tastes yummy. They are fine and they look wonderful. Avocado Salad is something that I have loved my entire life.
+
+
+To begin with this particular recipe, we have to first prepare a few ingredients. You can cook avocado salad using 13 ingredients and 8 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Avocado Salad:
+
+1. Take  Cabbage
+1. Take  Lettuce
+1. Make ready  Tomatoes
+1. Get  Avocados n beetroot
+1. Get  Onions
+1. Prepare  Boiled Egg
+1. Take  Lemon
+1. Make ready 1 cube seasoning
+1. Take Pinch salt(optional)
+1. Get  For garnishing
+1. Get  Salad cream or mayonnaise
+1. Prepare  Black pepper powder
+1. Make ready  Olive oil, lemon juice
+
+
+Corn avocado salad - so tasty, simple and refreshing for summer. Chickpea avocado salad - high protein salad with cucumber and tomato. Shrimp avocado salad - juicy, loaded and creamy with healthy yogurt dressing. Smoked salmon salad - healthy sushi in a bowl with tons of greens. 
+
+<!--inarticleads2-->
+
+##### Steps to make Avocado Salad:
+
+1. Wash all veggies thoroughly and set aside.
+1. Cut ur lettuce n cabbage separately.
+1. Dice you Avocado,tomato n beetroot.
+1. Slice ur cucumber, boiled egg, onion n lemon.
+1. Dressed ur veggies n egg in a salad bowl or tray.
+1. For d garnishing if u are using mayonnaise or salad cream put 2table spoon of warm water in a bowl, add ur powdered seasoning n black pepper, add mayonnaise or salad cream n mixed then garnish ur salad with d mixture.
+1. If u are not using mayonnaise squeeze lemon juice in a bowl add olive oil, ur seasoning powder n black pepper n garnish ur salad with this mixture.
+1. Salad can be serve alone or with other dishes, like white rice, fried rice etc.
+
+
+Season dressing with salt and pepper. In a large serving bowl, combine avocados, tomatoes, cucumber, corn, jalapeño, and cilantro. This salad is loaded with veggies; juicy tomatoes, crisp cucumber, creamy avocado and the cilantro and lemon juice make the whole salad so fresh and flavorful! In a large bowl, combine romaine, bacon, tomatoes and onion. Given the avocado base, this salad requires some extra consideration. 
+
+So that is going to wrap it up for this exceptional food avocado salad recipe. Thanks so much for reading. I'm confident that you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

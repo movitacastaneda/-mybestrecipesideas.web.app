@@ -1,0 +1,81 @@
+---
+description: "Recipe of Quick Tomato Pesto Salmon"
+title: "Recipe of Quick Tomato Pesto Salmon"
+slug: 1937-recipe-of-quick-tomato-pesto-salmon
+date: 2020-05-23T04:57:36.157Z
+image: https://img-global.cpcdn.com/recipes/531fda04634a5a69/751x532cq70/tomato-pesto-salmon-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/531fda04634a5a69/751x532cq70/tomato-pesto-salmon-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/531fda04634a5a69/751x532cq70/tomato-pesto-salmon-recipe-main-photo.jpg
+author: Georgia Baker
+ratingvalue: 4.2
+reviewcount: 10
+recipeingredient:
+- " Parchment Paper  Aluminum Foil 1218 inches"
+- "3 oz Green Beans"
+- "to taste Olive Oil"
+- "to taste Salt  Pepper"
+- "6 oz Salmon skinless"
+- "2 tbs Pesto"
+- "10 Cherry Tomatoes halved"
+recipeinstructions:
+- "Preheat oven to 350°F/180°C."
+- "Fold the parchment paper in half, then open up. On one half, lay down the green beans. Drizzle on oil and sprinkle on salt &amp; pepper."
+- "Lay the salmon on the green beans, and spread on the pesto. Top with tomatoes. Fold the parchment paper over the salmon, and cinch the paper together by folding it over itself along the edges."
+- "Bake for 20 minutes or until internal temperature of salmon reaches 145˚F/63˚C."
+categories:
+- Recipe
+tags:
+- tomato
+- pesto
+- salmon
+
+katakunci: tomato pesto salmon 
+nutrition: 194 calories
+recipecuisine: American
+preptime: "PT27M"
+cooktime: "PT39M"
+recipeyield: "4"
+recipecategory: Lunch
+
+---
+
+
+![Tomato Pesto Salmon](https://img-global.cpcdn.com/recipes/531fda04634a5a69/751x532cq70/tomato-pesto-salmon-recipe-main-photo.jpg)
+
+Hello everybody, it's Drew, welcome to my recipe page. Today, we're going to make a special dish, tomato pesto salmon. One of my favorites food recipes. For mine, I will make it a bit unique. This will be really delicious.
+
+Tomato Pesto Salmon is one of the most popular of recent trending foods on earth. It's simple, it's fast, it tastes delicious. It's appreciated by millions daily. They are nice and they look wonderful. Tomato Pesto Salmon is something that I have loved my entire life.
+
+Foil-Baked Salmon with Basil Pesto and Tomatoes is delicious all year, even when you have to use basil pesto from a Today I want to remind you about this Baked Salmon with Pesto and Tomatoes. All Reviews for Salmon with Tomato Pesto. Salmon with Tomato Pesto. this link is to an external site that may or may not meet accessibility guidelines.
+
+
+To begin with this particular recipe, we must prepare a few components. You can cook tomato pesto salmon using 7 ingredients and 4 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Tomato Pesto Salmon:
+
+1. Prepare  Parchment Paper / Aluminum Foil (12×18 inches)
+1. Take 3 oz Green Beans
+1. Take to taste Olive Oil
+1. Get to taste Salt &amp; Pepper
+1. Make ready 6 oz Salmon (skinless)
+1. Prepare 2 tbs Pesto
+1. Make ready 10 Cherry Tomatoes (halved)
+
+
+Cover it with a hefty serving of pesto, and top it with slices of tomato! For the salmon, heat the oil in an ovenproof frying pan until smoking and add the salmon, skin-side down. Spoon the roasted cherry tomatoes alongside, then drizzle over the pesto dressing. Season the salmon with a little salt and cracked black pepper and then drizzle the salmon with the olive oil. 
+
+<!--inarticleads2-->
+
+##### Steps to make Tomato Pesto Salmon:
+
+1. Preheat oven to 350°F/180°C.
+1. Fold the parchment paper in half, then open up. On one half, lay down the green beans. Drizzle on oil and sprinkle on salt &amp; pepper.
+1. Lay the salmon on the green beans, and spread on the pesto. Top with tomatoes. Fold the parchment paper over the salmon, and cinch the paper together by folding it over itself along the edges.
+1. Bake for 20 minutes or until internal temperature of salmon reaches 145˚F/63˚C.
+
+
+Serve the salmon with a drizzle of the sun dried tomato pesto. Tomato Almond Pesto (Trapanese). this link is to an external site that may or may not meet accessibility. Salmon in Tomato Sauce, an exquisite and elegant dish made with ripe tomatoes, olives, and red peppers. Place the Salmon piece, skin down.. Mix the wet ingredients and spread equally on both fish pieces. 
+
+So that's going to wrap it up for this special food tomato pesto salmon recipe. Thanks so much for reading. I am confident that you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
