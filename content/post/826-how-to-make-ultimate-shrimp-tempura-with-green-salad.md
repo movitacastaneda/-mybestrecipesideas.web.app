@@ -1,0 +1,85 @@
+---
+description: "How to Make Ultimate Shrimp tempura with green salad"
+title: "How to Make Ultimate Shrimp tempura with green salad"
+slug: 826-how-to-make-ultimate-shrimp-tempura-with-green-salad
+date: 2020-09-12T01:51:14.315Z
+image: https://img-global.cpcdn.com/recipes/5b9de8cf03f3d240/751x532cq70/shrimp-tempura-with-green-salad-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5b9de8cf03f3d240/751x532cq70/shrimp-tempura-with-green-salad-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5b9de8cf03f3d240/751x532cq70/shrimp-tempura-with-green-salad-recipe-main-photo.jpg
+author: Eugene Dennis
+ratingvalue: 5
+reviewcount: 4
+recipeingredient:
+- " Shrimp"
+- " Salt  pepper"
+- " Batter"
+- " Thai tempura mix"
+- " Egg"
+- " Breadcrumbs"
+- " Green salad"
+- " Lettuce"
+- " Pomegranate"
+- " Onion"
+- " Cheese"
+recipeinstructions:
+- "Heat up the oil. Dip the shrimp on the batter and then fry"
+- "Prepare the salad"
+categories:
+- Recipe
+tags:
+- shrimp
+- tempura
+- with
+
+katakunci: shrimp tempura with 
+nutrition: 141 calories
+recipecuisine: American
+preptime: "PT14M"
+cooktime: "PT40M"
+recipeyield: "3"
+recipecategory: Dessert
+
+---
+
+
+![Shrimp tempura with green salad](https://img-global.cpcdn.com/recipes/5b9de8cf03f3d240/751x532cq70/shrimp-tempura-with-green-salad-recipe-main-photo.jpg)
+
+Hey everyone, it is Jim, welcome to our recipe page. Today, I'm gonna show you how to prepare a special dish, shrimp tempura with green salad. One of my favorites. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
+
+Shrimp tempura with green salad is one of the most well liked of current trending foods on earth. It's easy, it is quick, it tastes yummy. It's enjoyed by millions daily. Shrimp tempura with green salad is something that I've loved my entire life. They are nice and they look fantastic.
+
+The secret to making a light, crisp coating that doesn&#39;t absorb oil when fried is in the batter and deep-frying technique. Transfer the Shrimp Tempura to a wire rack or a plate lined with a paper towel to drain excess oil. Between batches, skim the crumbs in the oil, which.
+
+
+To begin with this recipe, we must first prepare a few components. You can cook shrimp tempura with green salad using 11 ingredients and 2 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Shrimp tempura with green salad:
+
+1. Make ready  Shrimp
+1. Get  Salt &amp; pepper
+1. Prepare  Batter
+1. Take  Thai tempura mix
+1. Make ready  Egg
+1. Take  Breadcrumbs
+1. Take  Green salad
+1. Prepare  Lettuce
+1. Get  Pomegranate
+1. Make ready  Onion
+1. Get  Cheese
+
+
+Dip the shrimp on the batter and then fry. Clean the shrimp under running water and remove the heads. To devein the shrimp, use the simple technique in my recipe for Vietnamese Green Mango Salad with Shrimp. This technique prevents the shrimp from curling so it&#39;s important to not slice the entire back of the shrimp when removing the vein. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Shrimp tempura with green salad:
+
+1. Heat up the oil. Dip the shrimp on the batter and then fry
+1. Prepare the salad
+
+
+Peel and de-vein shrimp, leaving the tail attached. Cut off tips of tails to avoid water splatter when frying. Mix salad greens and herbs together and set aside. Dip shrimp in tempura batter, shaking off excess. We did not use this batter recipe for shrimp and omitted the marinate but i used the basic tempura batter on onion rings and chicken and it was lovely. 
+
+So that is going to wrap this up with this exceptional food shrimp tempura with green salad recipe. Thanks so much for your time. I am sure you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

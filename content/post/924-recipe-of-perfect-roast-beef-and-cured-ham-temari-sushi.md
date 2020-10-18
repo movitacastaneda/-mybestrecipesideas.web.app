@@ -1,0 +1,91 @@
+---
+description: "Recipe of Perfect Roast Beef and Cured Ham Temari Sushi"
+title: "Recipe of Perfect Roast Beef and Cured Ham Temari Sushi"
+slug: 924-recipe-of-perfect-roast-beef-and-cured-ham-temari-sushi
+date: 2020-07-20T21:56:10.638Z
+image: https://img-global.cpcdn.com/recipes/4784691673563136/751x532cq70/roast-beef-and-cured-ham-temari-sushi-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/4784691673563136/751x532cq70/roast-beef-and-cured-ham-temari-sushi-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/4784691673563136/751x532cq70/roast-beef-and-cured-ham-temari-sushi-recipe-main-photo.jpg
+author: Corey Beck
+ratingvalue: 5
+reviewcount: 6
+recipeingredient:
+- "350 grams Plain cooked rice"
+- "1 tbsp Vinegar"
+- "1/2 tbsp Sugar"
+- "1/2 tsp Salt"
+- "1 Roast beef"
+- "1 Prosciutto"
+- "1 Toasted sesame seeds"
+- "1 Mayonnaise"
+- "1 Shiso leaves wasabi"
+recipeinstructions:
+- "Cook the rice a little firmer than usual, then mix in the vinegar, sugar, and salt with the rice paddle using cutting motions. Check the taste and adjust the seasoning if necessary."
+- "Divide the sushi rice into 2 portions. Mix one portion with the toasted sesame seeds. This will be for the cured ham."
+- "Cut the roast beef slices in half and put 1 slice on top of some plastic wrap. Top with a bite-sized amount of sushi rice."
+- "Use the plastic wrap to squeeze it all into a round shape."
+- "For the cured ham, put some mayonnaise between the rice and the ham. Shape in the same way as you did the roast beef."
+- "Top the roast beef with wasabi and the cured ham with shredded shiso leaves."
+- "Use soy sauce or roast beef sauce to garnish the roast beef sushi. The cured ham sushi is good as-is."
+categories:
+- Recipe
+tags:
+- roast
+- beef
+- and
+
+katakunci: roast beef and 
+nutrition: 198 calories
+recipecuisine: American
+preptime: "PT37M"
+cooktime: "PT54M"
+recipeyield: "4"
+recipecategory: Dessert
+
+---
+
+
+![Roast Beef and Cured Ham Temari Sushi](https://img-global.cpcdn.com/recipes/4784691673563136/751x532cq70/roast-beef-and-cured-ham-temari-sushi-recipe-main-photo.jpg)
+
+Hello everybody, it's Jim, welcome to my recipe page. Today, we're going to make a distinctive dish, roast beef and cured ham temari sushi. One of my favorites food recipes. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
+
+
+
+Roast Beef and Cured Ham Temari Sushi is one of the most popular of recent trending foods in the world. It's enjoyed by millions daily. It is easy, it's quick, it tastes yummy. Roast Beef and Cured Ham Temari Sushi is something which I've loved my entire life. They're nice and they look fantastic.
+
+
+To begin with this particular recipe, we must prepare a few components. You can cook roast beef and cured ham temari sushi using 9 ingredients and 7 steps. Here is how you can achieve it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Roast Beef and Cured Ham Temari Sushi:
+
+1. Make ready 350 grams Plain cooked rice
+1. Take 1 tbsp Vinegar
+1. Prepare 1/2 tbsp Sugar
+1. Prepare 1/2 tsp Salt
+1. Prepare 1 Roast beef
+1. Get 1 Prosciutto
+1. Get 1 Toasted sesame seeds
+1. Prepare 1 Mayonnaise
+1. Take 1 Shiso leaves, wasabi
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Roast Beef and Cured Ham Temari Sushi:
+
+1. Cook the rice a little firmer than usual, then mix in the vinegar, sugar, and salt with the rice paddle using cutting motions. Check the taste and adjust the seasoning if necessary.
+1. Divide the sushi rice into 2 portions. Mix one portion with the toasted sesame seeds. This will be for the cured ham.
+1. Cut the roast beef slices in half and put 1 slice on top of some plastic wrap. Top with a bite-sized amount of sushi rice.
+1. Use the plastic wrap to squeeze it all into a round shape.
+1. For the cured ham, put some mayonnaise between the rice and the ham. Shape in the same way as you did the roast beef.
+1. Top the roast beef with wasabi and the cured ham with shredded shiso leaves.
+1. Use soy sauce or roast beef sauce to garnish the roast beef sushi. The cured ham sushi is good as-is.
+
+
+
+
+So that's going to wrap this up with this special food roast beef and cured ham temari sushi recipe. Thank you very much for your time. I'm confident that you will make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

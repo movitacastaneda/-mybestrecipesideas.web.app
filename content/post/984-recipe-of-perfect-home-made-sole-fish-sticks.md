@@ -1,0 +1,91 @@
+---
+description: "Recipe of Perfect Home made sole fish sticks"
+title: "Recipe of Perfect Home made sole fish sticks"
+slug: 984-recipe-of-perfect-home-made-sole-fish-sticks
+date: 2020-04-27T02:13:31.992Z
+image: https://img-global.cpcdn.com/recipes/1c0bd98af10e27fa/751x532cq70/home-made-sole-fish-sticks-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/1c0bd98af10e27fa/751x532cq70/home-made-sole-fish-sticks-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/1c0bd98af10e27fa/751x532cq70/home-made-sole-fish-sticks-recipe-main-photo.jpg
+author: Leah Mitchell
+ratingvalue: 4.3
+reviewcount: 3
+recipeingredient:
+- " filet of sole cut in half lengthwise"
+- " cornflakes crashed"
+- " parsley chopped finely"
+- " flour"
+- " large eggs"
+- " butter"
+- " Salt"
+- " Pepper"
+- " Oil to cover the bottom of your skillet"
+- " Zest from one lime"
+recipeinstructions:
+- "First rinse and pad dry the sole. When dry salt and pepper to your preference"
+- "In a big bowl add the crashed cornflakes and chopped parsley and the lime zest stir and put a side you can add some salt and pepper I do."
+- "Now beat the three eggs in a bowl and put a side and also put the flour in a big shallow plate"
+- "Now put the oil and the butter in a skillet and heat it up to medium high heat"
+- "Now first coat the fish in the flour than put it in the egg and finally put in to the cornflakes mixture and in to the pan cook till golden"
+- "Enjoy (καλή όρεξη)"
+categories:
+- Recipe
+tags:
+- home
+- made
+- sole
+
+katakunci: home made sole 
+nutrition: 123 calories
+recipecuisine: American
+preptime: "PT17M"
+cooktime: "PT40M"
+recipeyield: "1"
+recipecategory: Dessert
+
+---
+
+
+![Home made sole fish sticks](https://img-global.cpcdn.com/recipes/1c0bd98af10e27fa/751x532cq70/home-made-sole-fish-sticks-recipe-main-photo.jpg)
+
+Hey everyone, it's me, Dave, welcome to our recipe site. Today, I will show you a way to make a distinctive dish, home made sole fish sticks. It is one of my favorites. For mine, I am going to make it a bit unique. This will be really delicious.
+
+Home made sole fish sticks is one of the most favored of current trending meals on earth. It's appreciated by millions every day. It is simple, it's quick, it tastes delicious. They are nice and they look wonderful. Home made sole fish sticks is something that I've loved my entire life.
+
+Remove the fish sticks from the oil, drain on paper towels, season with salt and serve with a wedge of lemon and homemade ketchup. These Homemade Fish Sticks are so easy to make! They are crunchy and delicious so you can forget the store-bought stuff!
+
+
+To begin with this particular recipe, we have to first prepare a few components. You can cook home made sole fish sticks using 10 ingredients and 6 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Home made sole fish sticks:
+
+1. Take  filet of sole cut in half lengthwise
+1. Make ready  cornflakes crashed
+1. Take  parsley chopped finely
+1. Get  flour
+1. Take  large eggs
+1. Take  butter
+1. Make ready  Salt
+1. Prepare  Pepper
+1. Take  Oil to cover the bottom of your skillet
+1. Make ready  Zest from one lime
+
+
+Would this recipe work with sole? These crispy homemade fish sticks are flavored with lemon and garlic! They are super crunchy and delicious when dipped in the Jump to Recipe. Say hello to lemon garlic homemade fish sticks. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Home made sole fish sticks:
+
+1. First rinse and pad dry the sole. When dry salt and pepper to your preference
+1. In a big bowl add the crashed cornflakes and chopped parsley and the lime zest stir and put a side you can add some salt and pepper I do.
+1. Now beat the three eggs in a bowl and put a side and also put the flour in a big shallow plate
+1. Now put the oil and the butter in a skillet and heat it up to medium high heat
+1. Now first coat the fish in the flour than put it in the egg and finally put in to the cornflakes mixture and in to the pan cook till golden
+1. Enjoy (καλή όρεξη)
+
+
+I mean, major lust and love. How to Make Homemade Fish Sticks. I am all about remaking unhealthy favorites into nourishing and delicious real-food recipes. To make fish sticks at home, first choose your fish. Any wild-caught white fish, such as cod, mahi mahi, or halibut will work just fine for this recipe. 
+
+So that's going to wrap it up for this special food home made sole fish sticks recipe. Thanks so much for your time. I'm confident you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

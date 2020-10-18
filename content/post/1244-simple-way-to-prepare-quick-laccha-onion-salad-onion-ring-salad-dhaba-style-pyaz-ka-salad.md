@@ -1,0 +1,86 @@
+---
+description: "Simple Way to Prepare Quick Laccha Onion Salad | Onion Ring Salad | Dhaba style Pyaz ka salad"
+title: "Simple Way to Prepare Quick Laccha Onion Salad | Onion Ring Salad | Dhaba style Pyaz ka salad"
+slug: 1244-simple-way-to-prepare-quick-laccha-onion-salad-onion-ring-salad-dhaba-style-pyaz-ka-salad
+date: 2020-10-06T19:06:13.873Z
+image: https://img-global.cpcdn.com/recipes/eec5f6b58e25280d/751x532cq70/laccha-onion-salad-onion-ring-salad-dhaba-style-pyaz-ka-salad-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/eec5f6b58e25280d/751x532cq70/laccha-onion-salad-onion-ring-salad-dhaba-style-pyaz-ka-salad-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/eec5f6b58e25280d/751x532cq70/laccha-onion-salad-onion-ring-salad-dhaba-style-pyaz-ka-salad-recipe-main-photo.jpg
+author: Troy Hunter
+ratingvalue: 4.6
+reviewcount: 8
+recipeingredient:
+- "1 medium size onion"
+- "1/2 chilliI used Jalepeno"
+- "1/2 tsp red chilli powder"
+- "1/2 tsp cumin powder"
+- "1/2 tsp salt"
+- "1/2 tsp chaat masala"
+- "1/4 tsp garam masala"
+- "1 tsp oilOptional"
+- "1/2 lemon juice"
+recipeinstructions:
+- "Cut the medium size onion thinly slice. Same way cut the jalapeno or any chilli you like"
+- "Put the onion rings in to the cold water for 2-3 minute."
+- "Meanwhile Add 1tsp oil in to the pan and cook the jalapeno for 1 minute. This step is optional."
+- "Remove the onion and put into the other bowl then add chilli powder, cumin powder, salt, Garam masala, chaat masala and lemon juice."
+- "Lastly add the cooked jalapeno and mix with your hands."
+- "Lachha onion ring salad is ready. You can eat with any type of side dish like biryani, barbecue, tandoori and any curries."
+categories:
+- Recipe
+tags:
+- laccha
+- onion
+- salad
+
+katakunci: laccha onion salad 
+nutrition: 247 calories
+recipecuisine: American
+preptime: "PT24M"
+cooktime: "PT33M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+![Laccha Onion Salad | Onion Ring Salad | Dhaba style Pyaz ka salad](https://img-global.cpcdn.com/recipes/eec5f6b58e25280d/751x532cq70/laccha-onion-salad-onion-ring-salad-dhaba-style-pyaz-ka-salad-recipe-main-photo.jpg)
+
+Hey everyone, hope you're having an incredible day today. Today, I'm gonna show you how to prepare a distinctive dish, laccha onion salad | onion ring salad | dhaba style pyaz ka salad. One of my favorites. This time, I am going to make it a little bit tasty. This will be really delicious.
+
+Laccha Onion Salad 
+
+To get started with this particular recipe, we have to first prepare a few components. You can cook laccha onion salad | onion ring salad | dhaba style pyaz ka salad using 9 ingredients and 6 steps. Here is how you can achieve it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Laccha Onion Salad | Onion Ring Salad | Dhaba style Pyaz ka salad:
+
+1. Prepare 1 medium size onion
+1. Make ready 1/2 chilli(I used Jalepeno)
+1. Make ready 1/2 tsp red chilli powder
+1. Prepare 1/2 tsp cumin powder
+1. Get 1/2 tsp salt
+1. Get 1/2 tsp chaat masala
+1. Get 1/4 tsp garam masala
+1. Get 1 tsp oil(Optional)
+1. Prepare 1/2 lemon juice
+
+
+Laccha pyaaz is the simplest Indian tandoori-style onion salad. Very often this is seen served on tandoori style dishes, on slowly cooked gravy or as a side to the giant batura and chole. The often ignored salad was my only favourite when my dad took us to have chole batura at Vasantha Bhavan restaurant near my hometown. I was perfectly happy having just this onion salad with the fluffy puffed. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Laccha Onion Salad | Onion Ring Salad | Dhaba style Pyaz ka salad:
+
+1. Cut the medium size onion thinly slice. Same way cut the jalapeno or any chilli you like
+1. Put the onion rings in to the cold water for 2-3 minute.
+1. Meanwhile Add 1tsp oil in to the pan and cook the jalapeno for 1 minute. This step is optional.
+1. Remove the onion and put into the other bowl then add chilli powder, cumin powder, salt, Garam masala, chaat masala and lemon juice.
+1. Lastly add the cooked jalapeno and mix with your hands.
+1. Lachha onion ring salad is ready. You can eat with any type of side dish like biryani, barbecue, tandoori and any curries.
+
+
+Onion salad or Pyaaz ka lachcha as we call in Hindi. Laccha onion is a onion salad with spices in it. It can be enjoyed anytime i.e, lunch, dinner. It&#39;s a combination of spices and lemon juice. Tangy, spicy and flavourful onion salad. 
+
+So that is going to wrap this up with this special food laccha onion salad | onion ring salad | dhaba style pyaz ka salad recipe. Thanks so much for your time. I am sure you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

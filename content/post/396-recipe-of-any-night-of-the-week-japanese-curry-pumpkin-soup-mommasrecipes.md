@@ -1,0 +1,97 @@
+---
+description: "Recipe of Any-night-of-the-week Japanese Curry Pumpkin Soup #mommasrecipes"
+title: "Recipe of Any-night-of-the-week Japanese Curry Pumpkin Soup #mommasrecipes"
+slug: 396-recipe-of-any-night-of-the-week-japanese-curry-pumpkin-soup-mommasrecipes
+date: 2020-09-30T18:44:48.179Z
+image: https://img-global.cpcdn.com/recipes/f9e05c0a356bbcb4/751x532cq70/japanese-curry-pumpkin-soup-mommasrecipes-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/f9e05c0a356bbcb4/751x532cq70/japanese-curry-pumpkin-soup-mommasrecipes-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/f9e05c0a356bbcb4/751x532cq70/japanese-curry-pumpkin-soup-mommasrecipes-recipe-main-photo.jpg
+author: Maud Webster
+ratingvalue: 4.8
+reviewcount: 5
+recipeingredient:
+- "3 cups diced Kabocha squash"
+- "1 carrot diced"
+- "1 cup cut cauliflower or potatoes"
+- "1/2 onion diced"
+- "1 cup leek sliced"
+- "4 oz firm tofu cubed"
+- "1 cup cooked beans optional"
+- "16 oz homemade stock"
+- "3 Tsp olive oil"
+- "2 Tsp All purpose flour"
+- "2 Tsp butter"
+- "1 tsp each toasted cumin coriander fennel seeds powered"
+- "2 tsp turmeric powder"
+- "1/2 tsp each chili cinnamon and ginger powder"
+- "2 Tsp concentrated tomato paste"
+- "1/2 cup apple puree or 1 Tsp honey"
+recipeinstructions:
+- "Make curry paste ahead of the time. Heat up butter and stir in flour on low heat. Once incorporated, add all spices and apple puree. Mix and cook until a thick paste form. Divide the paste into 2 blocks and refrigerate them. Next morning, saute carrot, cauliflower, onion in olive oil until aromatic, about 1 minute."
+- "Add Kabocha squash, tofu, cooked beans. Stir in one half of curry paste made yesterday. Pour in homemade stock and 32 oz of water. Cook on high heat for about 10 minutes. Check the doneness of the squash and add more paste if needed. Simmer for another 5-10 minutes."
+- "Serve with multigrain rice and another entree, such as chicken vegetable patty in one of my other recipe. https://cookpad.com/us/recipes/6681848-chicken-vegetable-patties-%E9%B8%A1%E8%82%89%E9%A5%BC?via=profile"
+categories:
+- Recipe
+tags:
+- japanese
+- curry
+- pumpkin
+
+katakunci: japanese curry pumpkin 
+nutrition: 208 calories
+recipecuisine: American
+preptime: "PT14M"
+cooktime: "PT39M"
+recipeyield: "4"
+recipecategory: Lunch
+
+---
+
+
+![Japanese Curry Pumpkin Soup #mommasrecipes](https://img-global.cpcdn.com/recipes/f9e05c0a356bbcb4/751x532cq70/japanese-curry-pumpkin-soup-mommasrecipes-recipe-main-photo.jpg)
+
+Hello everybody, it's Brad, welcome to our recipe site. Today, I will show you a way to prepare a distinctive dish, japanese curry pumpkin soup #mommasrecipes. It is one of my favorites food recipes. For mine, I'm gonna make it a bit tasty. This is gonna smell and look delicious.
+
+Japanese curry has a slightly sweeter flavor, often due to pear or apple Always key to a good meal. Looking for any other one pot type meals? Check out these soup and stew options.
+
+Japanese Curry Pumpkin Soup #mommasrecipes is one of the most favored of recent trending foods in the world. It is appreciated by millions every day. It's simple, it's quick, it tastes delicious. They're nice and they look wonderful. Japanese Curry Pumpkin Soup #mommasrecipes is something that I have loved my entire life.
+
+
+To get started with this recipe, we must prepare a few components. You can have japanese curry pumpkin soup #mommasrecipes using 16 ingredients and 3 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Japanese Curry Pumpkin Soup #mommasrecipes:
+
+1. Make ready 3 cups diced Kabocha squash
+1. Prepare 1 carrot, diced
+1. Make ready 1 cup cut cauliflower or potatoes
+1. Get 1/2 onion, diced
+1. Get 1 cup leek, sliced
+1. Get 4 oz firm tofu, cubed
+1. Get 1 cup cooked beans, optional
+1. Make ready 16 oz homemade stock
+1. Get 3 Tsp olive oil
+1. Prepare 2 Tsp All purpose flour
+1. Take 2 Tsp butter
+1. Take 1 tsp each toasted cumin, coriander, fennel seeds, powered
+1. Take 2 tsp turmeric powder
+1. Take 1/2 tsp each chili, cinnamon and ginger powder
+1. Take 2 Tsp concentrated tomato paste
+1. Prepare 1/2 cup apple puree or 1 Tsp honey
+
+
+Weekday cooking didn&#39;t stand a chance. Pumpkin (or butternut squash) soup can go a whole bunch of directions. Red curry is one of my favorite things, especially mixed. Curry Pumpkin Soup. pumpkin these days. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Japanese Curry Pumpkin Soup #mommasrecipes:
+
+1. Make curry paste ahead of the time. Heat up butter and stir in flour on low heat. Once incorporated, add all spices and apple puree. Mix and cook until a thick paste form. Divide the paste into 2 blocks and refrigerate them. Next morning, saute carrot, cauliflower, onion in olive oil until aromatic, about 1 minute.
+1. Add Kabocha squash, tofu, cooked beans. Stir in one half of curry paste made yesterday. Pour in homemade stock and 32 oz of water. Cook on high heat for about 10 minutes. Check the doneness of the squash and add more paste if needed. Simmer for another 5-10 minutes.
+1. Serve with multigrain rice and another entree, such as chicken vegetable patty in one of my other recipe. https://cookpad.com/us/recipes/6681848-chicken-vegetable-patties-%E9%B8%A1%E8%82%89%E9%A5%BC?via=profile
+
+
+Fortunately, this post moves away from &#34;pumpkin spice&#34; and This creamy vegetable soup recipe is a snap to make and delicious. There is no cream used in this · Katsu curry is just a variation of Japanese curry with a Chicken Cutlet on top. The typical soup curry consists of the following: a light curry flavored soup, chicken leg, and non-battered deep-fried vegetables (&#34;suage&#34;-style, 素揚 Unlike the typical Japanese curry, steamed rice is always served separately. You scoop up the rice and then dip into the soup curry to enjoy together. Kabocha squash is the one I use in this recipe because Kabocha is much sweeter and denser than butternut squash, making this soup creamier and tastier. 
+
+So that is going to wrap this up with this exceptional food japanese curry pumpkin soup #mommasrecipes recipe. Thank you very much for reading. I am sure that you will make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

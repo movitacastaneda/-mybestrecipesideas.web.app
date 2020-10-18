@@ -1,0 +1,93 @@
+---
+description: "Simple Way to Make Perfect Tuna and White Bean Salad"
+title: "Simple Way to Make Perfect Tuna and White Bean Salad"
+slug: 1762-simple-way-to-make-perfect-tuna-and-white-bean-salad
+date: 2020-04-30T18:04:41.693Z
+image: https://img-global.cpcdn.com/recipes/b838947ea4718e6c/751x532cq70/tuna-and-white-bean-salad-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/b838947ea4718e6c/751x532cq70/tuna-and-white-bean-salad-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/b838947ea4718e6c/751x532cq70/tuna-and-white-bean-salad-recipe-main-photo.jpg
+author: Jennie Lawrence
+ratingvalue: 4.9
+reviewcount: 9
+recipeingredient:
+- "400 g Cannellini Beans"
+- "300 g Albacore Tuna"
+- "10 Anchovies"
+- "1 Red Onion"
+- "450 g Jar Roasted Red  Yellow Peppers"
+- "250 g Cherry Tomatoes"
+- "100 g Black Olives"
+- "50 g Parsley"
+- "1 tbsp Garlic Puree"
+- "2 tbsp Olive Oil"
+- "1 Juice of Lemon"
+- "1 tbsp Balsamic Vinegar"
+- " MyCookbook"
+recipeinstructions:
+- "Chop onion and place in a bowl and add olive oil, balsamic and garlic purée."
+- "Chop peppers and slice tomatoes into quarters and olives into halves and add to mix."
+- "Add cannellini beans together with flaked tuna and finely sliced anchovies."
+- "Finally add juice of lemon and parsley and enjoy."
+categories:
+- Recipe
+tags:
+- tuna
+- and
+- white
+
+katakunci: tuna and white 
+nutrition: 159 calories
+recipecuisine: American
+preptime: "PT28M"
+cooktime: "PT52M"
+recipeyield: "3"
+recipecategory: Lunch
+
+---
+
+
+![Tuna and White Bean Salad](https://img-global.cpcdn.com/recipes/b838947ea4718e6c/751x532cq70/tuna-and-white-bean-salad-recipe-main-photo.jpg)
+
+Hey everyone, it is Drew, welcome to our recipe site. Today, we're going to prepare a distinctive dish, tuna and white bean salad. One of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
+
+Get Amazing Seafood Salad Recipes From Kraft®. The time-honored Italian pairing of canned tuna and cannellini beans makes a super-simple, satisfying lunch. Serve over salad greens, on grilled whole-wheat country bread or tucked in a whole-wheat pita pocket.
+
+Tuna and White Bean Salad is one of the most popular of recent trending meals on earth. It is enjoyed by millions daily. It's easy, it is quick, it tastes delicious. Tuna and White Bean Salad is something which I've loved my entire life. They are nice and they look wonderful.
+
+
+To begin with this particular recipe, we must prepare a few ingredients. You can have tuna and white bean salad using 13 ingredients and 4 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Tuna and White Bean Salad:
+
+1. Take 400 g Cannellini Beans
+1. Get 300 g Albacore Tuna
+1. Prepare 10 Anchovies
+1. Take 1 Red Onion
+1. Make ready 450 g Jar Roasted Red &amp; Yellow Peppers
+1. Take 250 g Cherry Tomatoes
+1. Prepare 100 g Black Olives
+1. Make ready 50 g Parsley
+1. Prepare 1 tbsp Garlic Puree
+1. Make ready 2 tbsp Olive Oil
+1. Make ready 1 Juice of Lemon
+1. Get 1 tbsp Balsamic Vinegar
+1. Take  #MyCookbook
+
+
+And the dressing is made of olive oil, lemon juice, salt, and pepper. If you are going to make a white bean &amp; tuna salad (which, if you&#39;ve never had it, might not sound good, but is) with canned goods, this is a good recipe. This is from a book called _Culinary Journey to the Mediterranean. You can serve this with pita bread or pita chips, and/or on a bed of arugula or. 
+
+<!--inarticleads2-->
+
+##### Steps to make Tuna and White Bean Salad:
+
+1. Chop onion and place in a bowl and add olive oil, balsamic and garlic purée.
+1. Chop peppers and slice tomatoes into quarters and olives into halves and add to mix.
+1. Add cannellini beans together with flaked tuna and finely sliced anchovies.
+1. Finally add juice of lemon and parsley and enjoy.
+
+
+How to Make Tuna White Bean Salad, in a Nutshell. This recipe is super convenient - you probably already have all the ingredients required to make this recipe on hand in your pantry and fridge. White Bean Tuna Salad White Bean Tuna Salad. How to Make Tuscan White Bean Salad. Simply combine the arugula, white beans, tuna, tomatoes, olives, and red onion in a large bowl. 
+
+So that is going to wrap it up with this exceptional food tuna and white bean salad recipe. Thanks so much for reading. I am sure that you will make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
