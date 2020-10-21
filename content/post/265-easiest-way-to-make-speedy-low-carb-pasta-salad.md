@@ -1,0 +1,83 @@
+---
+description: "Easiest Way to Make Speedy “Low carb” pasta salad"
+title: "Easiest Way to Make Speedy “Low carb” pasta salad"
+slug: 265-easiest-way-to-make-speedy-low-carb-pasta-salad
+date: 2020-08-09T13:45:01.126Z
+image: https://img-global.cpcdn.com/recipes/a881f7c7826296b2/751x532cq70/low-carb-pasta-salad-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/a881f7c7826296b2/751x532cq70/low-carb-pasta-salad-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/a881f7c7826296b2/751x532cq70/low-carb-pasta-salad-recipe-main-photo.jpg
+author: Albert Vasquez
+ratingvalue: 5
+reviewcount: 12
+recipeingredient:
+- "1 lb or 13 oz dream fields pasta any shapeI used spaghetti cooked aldente"
+- "1 small pack of cherry tomatoes cut in half"
+- "1 can black olives cut in Half"
+- "1/3 small bag baby carrots diced"
+- "1 small cucumbers diced optional"
+- "1 block white cheese Extra sharp white cheddar is what I used"
+- "1/2 bottle Kens Italian dressing"
+- "3/4 cup Parmesan cheese"
+- " Herbs to taste I used oregano and parsley with some scallions chopped"
+recipeinstructions:
+- "Boil pasta to instructions (try to undercook by 1 min to make aldente) place in cold water immediately after boiled"
+- "Chop rest of ingredients and place in large bowl"
+- "Add pasta once cooked and add cheeses and dressing. Mix well and store in fridge an hour or two before serving."
+categories:
+- Recipe
+tags:
+- low
+- carb
+- pasta
+
+katakunci: low carb pasta 
+nutrition: 252 calories
+recipecuisine: American
+preptime: "PT22M"
+cooktime: "PT30M"
+recipeyield: "2"
+recipecategory: Dessert
+
+---
+
+
+![“Low carb” pasta salad](https://img-global.cpcdn.com/recipes/a881f7c7826296b2/751x532cq70/low-carb-pasta-salad-recipe-main-photo.jpg)
+
+Hello everybody, it is me, Dave, welcome to my recipe site. Today, we're going to make a special dish, “low carb” pasta salad. It is one of my favorites food recipes. This time, I am going to make it a little bit unique. This will be really delicious.
+
+“Low carb” pasta salad is one of the most well liked of current trending foods in the world. It's appreciated by millions every day. It is simple, it is quick, it tastes delicious. They're nice and they look wonderful. “Low carb” pasta salad is something that I've loved my whole life.
+
+Many of the reviews on Netrition&#39;s site suggested that it needed longer, but I thought it was just right. For the last minute of cooking time, add in some fresh asparagus. Drain the pasta and asparagus, and rinse them in.
+
+
+To begin with this particular recipe, we must first prepare a few components. You can cook “low carb” pasta salad using 9 ingredients and 3 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make “Low carb” pasta salad:
+
+1. Take 1 lb (or 13 oz) dream fields pasta (any shape-I used spaghetti) cooked aldente
+1. Make ready 1 small pack of cherry tomatoes cut in half
+1. Get 1 can black olives cut in Half
+1. Get 1/3 small bag baby carrots diced
+1. Prepare 1 small cucumbers diced (optional)
+1. Take 1 block white cheese. (Extra sharp white cheddar is what I used)
+1. Make ready 1/2 bottle Kens Italian dressing
+1. Take 3/4 cup Parmesan cheese
+1. Get  Herbs to taste- I used oregano and parsley with some scallions chopped
+
+
+If you tolerate dairy, you can add some cubed cheddar cheese or possibly some fresh. Our pasta was crafted to work best with an &#39;al dente&#39; texture. Which, as you know, is fancy Italian for cooking your pasta to be firm to the bite (i.e. retaining some texture!). And this translates beautifully into salads! 
+
+<!--inarticleads2-->
+
+##### Instructions to make “Low carb” pasta salad:
+
+1. Boil pasta to instructions (try to undercook by 1 min to make aldente) place in cold water immediately after boiled
+1. Chop rest of ingredients and place in large bowl
+1. Add pasta once cooked and add cheeses and dressing. Mix well and store in fridge an hour or two before serving.
+
+
+This Italian Antipasto salad has no pasta which makes it low carb! Its filled with yummy veggies, pepperoni, and mozzarella. It&#39;s creamy, salty, crunchy, and delicious! Its going to be one of your favorite healthy recipes! There is just something about a cold salad that reminds me of picnics and family reunions. 
+
+So that's going to wrap it up with this exceptional food “low carb” pasta salad recipe. Thanks so much for reading. I'm sure that you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

@@ -1,0 +1,79 @@
+---
+description: "Simple Way to Make Quick Pizza Casserole (low carb)"
+title: "Simple Way to Make Quick Pizza Casserole (low carb)"
+slug: 149-simple-way-to-make-quick-pizza-casserole-low-carb
+date: 2020-08-23T03:53:43.457Z
+image: https://img-global.cpcdn.com/recipes/98a66fe08bdaf835/751x532cq70/pizza-casserole-low-carb-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/98a66fe08bdaf835/751x532cq70/pizza-casserole-low-carb-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/98a66fe08bdaf835/751x532cq70/pizza-casserole-low-carb-recipe-main-photo.jpg
+author: Donald Chavez
+ratingvalue: 3.3
+reviewcount: 15
+recipeingredient:
+- "1 large cauliflower head broke up into florets"
+- "2 tbls olive oil"
+- "1 1/2 cups marinara sauce"
+- "2 cup shredded mozzarella cheese"
+- "2 oz pepperoni slices"
+- "2 tsp Italian seasoning"
+recipeinstructions:
+- "Preheat oven to 425."
+- "Combine olive oil and cauliflower in 9x13 pan and roast for 25 minutes."
+- "Spread marinara over cauliflower. Top with cheese, Italian seasoning and pepperoni."
+- "Bake for 10 minutes."
+categories:
+- Recipe
+tags:
+- pizza
+- casserole
+- low
+
+katakunci: pizza casserole low 
+nutrition: 300 calories
+recipecuisine: American
+preptime: "PT31M"
+cooktime: "PT55M"
+recipeyield: "3"
+recipecategory: Dessert
+
+---
+
+
+![Pizza Casserole (low carb)](https://img-global.cpcdn.com/recipes/98a66fe08bdaf835/751x532cq70/pizza-casserole-low-carb-recipe-main-photo.jpg)
+
+Hey everyone, it is me again, Dan, welcome to our recipe page. Today, I'm gonna show you how to make a distinctive dish, pizza casserole (low carb). One of my favorites food recipes. This time, I will make it a little bit tasty. This will be really delicious.
+
+Pizza Casserole (low carb) is one of the most favored of recent trending foods on earth. It's simple, it is fast, it tastes yummy. It's appreciated by millions daily. Pizza Casserole (low carb) is something that I've loved my whole life. They're fine and they look wonderful.
+
+
+
+
+To get started with this particular recipe, we have to prepare a few components. You can have pizza casserole (low carb) using 6 ingredients and 4 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Pizza Casserole (low carb):
+
+1. Take 1 large cauliflower head broke up into florets
+1. Make ready 2 tbls olive oil
+1. Take 1 1/2 cups marinara sauce
+1. Get 2 cup shredded mozzarella cheese
+1. Take 2 oz pepperoni slices
+1. Take 2 tsp Italian seasoning
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Pizza Casserole (low carb):
+
+1. Preheat oven to 425.
+1. Combine olive oil and cauliflower in 9x13 pan and roast for 25 minutes.
+1. Spread marinara over cauliflower. Top with cheese, Italian seasoning and pepperoni.
+1. Bake for 10 minutes.
+
+
+
+
+So that's going to wrap it up for this exceptional food pizza casserole (low carb) recipe. Thanks so much for your time. I am confident that you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

@@ -1,0 +1,85 @@
+---
+description: "Steps to Make Quick Sophie&amp;#39;s amazing steak marinade &amp;amp; side."
+title: "Steps to Make Quick Sophie&amp;#39;s amazing steak marinade &amp;amp; side."
+slug: 920-steps-to-make-quick-sophie-and-39-s-amazing-steak-marinade-and-amp-side
+date: 2020-09-06T12:21:26.019Z
+image: https://img-global.cpcdn.com/recipes/5293749332606976/751x532cq70/sophies-amazing-steak-marinade-side-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5293749332606976/751x532cq70/sophies-amazing-steak-marinade-side-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5293749332606976/751x532cq70/sophies-amazing-steak-marinade-side-recipe-main-photo.jpg
+author: Elva Griffith
+ratingvalue: 4.2
+reviewcount: 9
+recipeingredient:
+- "1/3 cup soy sauce"
+- "1/4 cup Olive oil"
+- "1/4 cup lime juice"
+- "1/4 cup Worcestershire sauce"
+- "2 tbsp Mixed herbs"
+- "1 tsp garlic puree"
+- "1/2 tsp chili flakes optional"
+- "4 steaks your choice what kind"
+recipeinstructions:
+- "Place steaks into a zip lock bag"
+- "Mix all the ingredients in a bowl, and transfer into the bag. Give it a good shake and make sure all the meat is coated."
+- "Leave to marinade for at least 4 hours - longer if possible."
+- "Remove the steak from the bag, leave the juices behind (but don&#39;t discard!) Cook in a frying pan on a medium heat until cooked to your liking. Remove it from the pan and set to one side to rest for 3-5 minutes. Lower the heat in the pan, and add the rest of the marinade sauce. Heat, and serve on your steak."
+- "I am currently on a healthy eating plan, so I like to have mine with a jacket potato, baked in the oven for an hour at 190 °C after being pricked and salted. I then mix the inside with some creme fraiche and chili flakes, and serve up with veggies or salad."
+categories:
+- Recipe
+tags:
+- sophies
+- amazing
+- steak
+
+katakunci: sophies amazing steak 
+nutrition: 198 calories
+recipecuisine: American
+preptime: "PT23M"
+cooktime: "PT34M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+![Sophie&#39;s amazing steak marinade &amp; side.](https://img-global.cpcdn.com/recipes/5293749332606976/751x532cq70/sophies-amazing-steak-marinade-side-recipe-main-photo.jpg)
+
+Hey everyone, I hope you're having an incredible day today. Today, we're going to prepare a distinctive dish, sophie&#39;s amazing steak marinade &amp; side.. One of my favorites food recipes. For mine, I'm gonna make it a bit unique. This is gonna smell and look delicious.
+
+Sophie&#39;s amazing steak marinade &amp; side. is one of the most favored of recent trending foods in the world. It's easy, it's quick, it tastes delicious. It's enjoyed by millions every day. They are fine and they look fantastic. Sophie&#39;s amazing steak marinade &amp; side. is something which I've loved my entire life.
+
+I really wasn&#39;t sure about the ingredients (didn&#39;t want teriyaki type), and decided to take a chance based upon the ratings. Steak purist as he is, hubs preferred his steak without this marinade and didn&#39;t use it. In hindsight I wish I would have followed suit.
+
+
+To begin with this recipe, we have to first prepare a few components. You can cook sophie&#39;s amazing steak marinade &amp; side. using 8 ingredients and 5 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Sophie&#39;s amazing steak marinade &amp; side.:
+
+1. Get 1/3 cup soy sauce
+1. Make ready 1/4 cup Olive oil
+1. Get 1/4 cup lime juice
+1. Make ready 1/4 cup Worcestershire sauce
+1. Prepare 2 tbsp Mixed herbs
+1. Take 1 tsp garlic puree
+1. Take 1/2 tsp chili flakes (optional)
+1. Take 4 steaks (your choice what kind)
+
+
+They&#39;re totally delicious and perfect for grilling, sautéing, slow cooking, Instant Pot, and more. The marinade in this Grilled Asian-style Soy Marinated Flank Steak takes an uninteresting piece of When marinating meat, the aromatic compounds in the marinade will never fully penetrate the We are so grateful for your help in our dietary choices. Though we think it tastes best as a steak marinade, users also recommend this flavorful sauce for marinating poultry, seafood, veggies, and more. The Best Flank Steak Marinade that makes super juicy and flavorful flank steak every time! 
+
+<!--inarticleads2-->
+
+##### Steps to make Sophie&#39;s amazing steak marinade &amp; side.:
+
+1. Place steaks into a zip lock bag
+1. Mix all the ingredients in a bowl, and transfer into the bag. Give it a good shake and make sure all the meat is coated.
+1. Leave to marinade for at least 4 hours - longer if possible.
+1. Remove the steak from the bag, leave the juices behind (but don&#39;t discard!) Cook in a frying pan on a medium heat until cooked to your liking. Remove it from the pan and set to one side to rest for 3-5 minutes. Lower the heat in the pan, and add the rest of the marinade sauce. Heat, and serve on your steak.
+1. I am currently on a healthy eating plan, so I like to have mine with a jacket potato, baked in the oven for an hour at 190 °C after being pricked and salted. I then mix the inside with some creme fraiche and chili flakes, and serve up with veggies or salad.
+
+
+This marinade recipe is flavored with soy sauce, honey, lime, and garlic, tenderizing the meat while adding mouth-watering flavors. Marinated flank steak is easy to prepare and perfect for grilling, pan-frying, or. Jack&#39;s Ultimate Steak Marinade - steaks marinated in red wine, chili sauce, red wine vinegar, Worcestershire sauce, onion, garlic, salt, pepper · This is Our All-Time Favorite Steak marinade! It requires only four ingredients, and makes our steak taste SO amazing! Grilled Tri-Tip Steak Marinade tenderizes and flavors the steak. 
+
+So that's going to wrap this up for this exceptional food sophie&#39;s amazing steak marinade &amp; side. recipe. Thanks so much for reading. I am confident you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
